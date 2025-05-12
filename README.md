@@ -1,4 +1,3 @@
--- Abstract --
 Rumah Makan DJ Resto merupakan perusahaan yang bergerak di bidang kuliner yang menyediakan masakan-masakan khas budaya
 Sunda. Beralamatkan di Jl. A. H. Nasution – Cipadung Wetan No. 304 Bandung. Proses penjualan merupakan salah satu kegiatan
 utama yang dilakukan oleh Rumah Makan DJ Resto. Dalam hal ini, penulis beranggapan bahwa proses penjualan yang berlangsung di
